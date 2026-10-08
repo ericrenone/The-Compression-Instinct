@@ -2,6 +2,15 @@
 
 *Two men born forty days apart, a grid of 144 pixels, and the law that decides which shapes get to live forever.*
 
+
+---
+
+<img width="234" height="346" alt="image" src="https://github.com/user-attachments/assets/990df4ef-a42e-484c-a5ab-65022d989ebd" />
+
+
+---
+
+
 ## Part I: Three in the Morning in Nagoya
 
 ### The flyer job
